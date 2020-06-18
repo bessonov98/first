@@ -1,4 +1,5 @@
 # Life of General Ulysses S. Grant.
+![Branching](why_ulysses.jpg)
 Wherein Captain Galligasken modestly disparages himself, and sets
 forth with becoming Enthusiasm the Virtues of the illustrious
 Soldier whose Life he insists upon writing.
